@@ -1,0 +1,1 @@
+# QUALCOMM-24
